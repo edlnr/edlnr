@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @edlnr
+- 👋 Hi, I’m Eduard
 - 👀 I’m interested in Crypto, Blockchain, NFTs, Stocks
 - 🌱 I’m currently eager to learn everything
 - 💞️ I’m looking to collaborate on interesting projects
